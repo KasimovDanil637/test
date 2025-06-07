@@ -8,7 +8,7 @@ dawdawd
 adwad
 wdwadw
 dwadadwadwadwaвфцвфцвфцвфцвawdadawd
-dawdawddadwdadawd
+awd
 dad
 dawdawвфцвфвфццdawdawddawdwdawddawdawd
 dawdwaddwada
